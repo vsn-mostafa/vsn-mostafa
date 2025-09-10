@@ -61,7 +61,7 @@ As the **Founder & CEO of [Visernic Limited](https://visernic.com)**, I help sta
 - 🌍 Website: [ceo.visernic.com](https://ceo.visernic.com)  
 - 💼 Company: [visernic.com](https://visernic.com)  
 - 📧 Email: [mostafa@visernic.com](mailto:mostafa@visernic.com)    
-- 🐦 Twitter: [@vsn-mostafa](https://twitter.com/vsm-mostafa)
+- 🐦 Twitter: [@vsn_mostafa](https://twitter.com/vsm_mostafa)
 
 ---
 
